@@ -1,0 +1,2 @@
+## UNIT FOUR
+As far as I had concered before, a paragraph is consisted of beginning, body and ending. But now it can be clarified further by introduction, body and conclusion. A well-organized essay should have a strong introductory paragraph and an effective concluding paragraph, which are stronger in purpose than what I've concluded, like beginning, ending or something. A strong introductory paragraph should attract the reader's interest, present the the thesis statement and indicate how I will develop the essay.
